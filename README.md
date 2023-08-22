@@ -1,4 +1,4 @@
-## ◇────── DRAGON VPS MANAGER ───────◇
+## ◇────── MELEKH VPS MANAGER ───────◇
 
 ㅤ
 <p align="left">
